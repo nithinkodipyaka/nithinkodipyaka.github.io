@@ -1,2 +1,0 @@
-# nithinkodipyaka.github.io
-Portfolio
